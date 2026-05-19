@@ -1,4 +1,4 @@
-# 
+# smart CCleaner for PC scripts is the best CCleaner for PC scripts with junk-file-cleanup and registry-cleanup. Safe, reliable, and optimized for maximum performance.
 
 
 
